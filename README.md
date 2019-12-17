@@ -1,2 +1,2 @@
-# muhammedDincer
+# bthndncr.github.io/muhammedDincer
 Portfolio
